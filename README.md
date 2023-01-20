@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Sistems Engineer <br>🎮🍙 I love tecnology and videogames<br>🌱 I’m currently learning<br>☕ I love<br>💻 The eternal student
+🔭 I’m Sistems Engineer <br>🎮🍙 I love tecnology and videogames<br>🌱 I’m currently learning<br>☕ I love coffee<br>💻 The eternal student
 
 
 ## 🌐 Socials:
